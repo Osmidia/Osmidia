@@ -1,9 +1,9 @@
-<font color="#000099">
-@gabrielll.hs
+<font color="#000099">@gabrielll.hs</font>
 e segue o 
 @juansouza.__
 Eu sou o Biell
-</font>.
+
+
 
 <p><b>Loirinha gostosa do cabelo longo</b></p>
 <p><b>Que anda de long e que ouve 1Kilo (vem ne' mim)</b></p>
