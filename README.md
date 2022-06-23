@@ -5,7 +5,7 @@ Eu sou o Biell
 
 
 
-<b>Loirinha gostosa do cabelo longo<b>
+<hr/><b>Loirinha gostosa do cabelo longo<b><hr/>
 Que anda de long e que ouve 1Kilo (vem ne' mim)
 Cola na baia, a gente solta arraia
 Eu te mostro como se namora um vampiro (vampiro)
