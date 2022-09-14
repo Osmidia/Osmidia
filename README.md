@@ -1,7 +1,7 @@
 <font color="green">❤@gabrielll.hs❤</font>
 e segue o 
 ❤@juansouza.__❤
-Eu sou o Biell
+
 
 
 
